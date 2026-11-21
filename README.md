@@ -2,7 +2,7 @@
 
 **`Desenvolvedora Back-End`**
 
-Olá! Eu sou Anderson Hemeto 👋
+Olá! Eu sou Anderson Hermeto 👋
 
 🪪 Atualmente, tenho 24 anos e sou natural do Rio Grande do Sul.
 
